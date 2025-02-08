@@ -1,4 +1,4 @@
-# <a href="https://l24.im/9RgZNA">Deneme Bonusu Veren Sİteler/a>
+# <a href="https://l24.im/9RgZNA">Deneme Bonusu Veren Sİteler a>
 # <a href="https://l24.im/9RgZNA">TIKLA VE GİRİŞYAP</a>
 
 <a href="https://a.info/piabett" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/eki5oS.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
